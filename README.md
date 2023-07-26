@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning a lot of things
 - 💞️ I’m looking to collaborate on learning and coding
 - 📫 How to reach me: contact me on discord hajardr#2262
-- to know more about some tools that will help you in the future follow me on Instagram @haja.rdr and Twiter @hajardr100
+- to know more about some tools that will help you in the future follow me on Instagram @haja.rdr and Twitter @hajardr100
